@@ -1,2 +1,1 @@
-# azu
-a z u 🌴💧
+fuck you
